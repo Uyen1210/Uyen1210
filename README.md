@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Uyen
 - 👀 my zodiac sign is Libra.
 - 🌱 I come from Hue.
-- I hope you won't understand the sentence: " Dans la vie des gens modernes,weinen muss im Vibrationsmodus belassen werden. "
+- : " Dans la vie des gens modernes,weinen muss im Vibrationsmodus belassen werden. "
 - 📫 
 
 <!---
