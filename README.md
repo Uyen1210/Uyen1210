@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Uyen
 - 👀 my zodiac sign is Libra.
 - 🌱 I come from Hue.
-      .... and I wanna go home and celebrate Tet right now huhu :<
+- Do you understand the sentence: " Im Leben des modernen Menschen ist es notwendig, im vibrierenden Modus zu weinen. "
 - 📫 
 
 <!---
