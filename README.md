@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Uyen
 - 👀 my zodiac sign is Libra.
 - 🌱 I come from Hue.
-- : " Dans la vie des gens modernes weinen muss im Vibrationsmodus belassen werden. "
+- : " Willst du zum Spielen nach Hue gehen, hehe ? "
 - 📫 
 
 <!---
